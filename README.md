@@ -1,2 +1,2 @@
-# Kisisel EPosta Imza Tasarimlari
- My E-Mail Signatures (Personal / Job)
+# Kişisel E-Posta İmza Tasarımları (My E-Mail Signatures)
+Personal / Job
